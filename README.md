@@ -33,7 +33,7 @@ Experience the power of Infinite Trading Bot in action!
 ## 💰 Want to Own the Source Code?  
 We are offering the **exclusive source code** of this powerful trading bot **for sale**. If you're looking to customize and deploy your own version, this is your chance to own a **proven, high-performing trading bot** on Solana.  
 
-📌 **Price:** $500  
+📌 **Price:** $750  
 📌 **Includes:** Full source code + Setup Guide  
 
 🚀 **Serious buyers only** – Contact me directly:  
